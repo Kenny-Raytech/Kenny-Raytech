@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kenny-Raytech
-- 👀 I’m interested in repairing phones and laptop
+- 👀 I’m  involved in phones and laptops repair
 - 🌱 I’m currently learning in Federal University of Agriculture Abeokuta 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://t.me/TKennyR_Bot
